@@ -1,6 +1,6 @@
 <a href="https://ibb.co/604CwHKD"><img src="https://i.ibb.co/7tGmCn3r/4f00a10a263665513fcbd64d1c0cc998.jpg" alt="4f00a10a263665513fcbd64d1c0cc998" border="0"></a>       
 
- Anywayss call me ravelle or ravelis or the freezer❄️ orr 12th Fatui harbinger idm
+ call me ravelle or ravelis or the freezer❄️ orr 12th Fatui harbinger idm
  C*H alwayssss, Capitano is my yume, sidekick, dadd- uhmm, ok sorry ok? Ok. Anyways ım a fun person!!🎭 Im from : 🇹🇷 . Im a minor so pls be carefull, ı can handle naughty jokes but not that much,  ı love spaceee! History my fav black hole is : ton 168  fav planet : jupiter, saturn, ... 
 
 My yume's : genshin ::, Capitano, pierro, pantz and dottore, zzz :: billy kid!! And komano manato and pyrois, lycaon, 
