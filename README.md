@@ -36,4 +36,5 @@ ALSO READ SERİOUSLY!! :: İ MİGHT BE SAD AND İNTERACT COLDY,, IM SORRY FOR TH
 READ SERİOUSLY 2 :: I NEED CARİNG FRİENDS. CUZ SOME OF MY FRİENDS DONT CUD, HUG WİTH ME. 
 
 İdk what to add so... Bye! Thanks for reading!! 
-<div class="tenor-gif-embed" data-postid="26181559" data-share-method="host" data-aspect-ratio="1.6" data-width="100%"><a href="https://tenor.com/view/capitano-genshin-impact-gif-26181559">Capitano Genshin Impact GIF</a>from <a href="https://tenor.com/search/capitano-gifs">Capitano GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/6RQRPcLm/il-capitano-the-captain.gif" alt="il capitano the captain" border="0"></a>
