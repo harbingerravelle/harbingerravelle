@@ -36,4 +36,4 @@ ALSO READ SERİOUSLY!! :: İ MİGHT BE SAD AND İNTERACT COLDY,, IM SORRY FOR TH
 READ SERİOUSLY 2 :: I NEED CARİNG FRİENDS. CUZ SOME OF MY FRİENDS DONT CUD, HUG WİTH ME. 
 
 İdk what to add so... Bye! Thanks for reading!! 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/6RQRPcLm/il-capitano-the-captain.gif" alt="il capitano the captain" border="0"></a>
+<a href="https://ibb.co/C5L57pDz"><img src="https://i.ibb.co/C5L57pDz/il-capitano-the-captain.gif" alt="il-capitano-the-captain" border="0"></a>
