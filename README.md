@@ -5,6 +5,8 @@
 
 My yume's : genshin ::, Capitano, pierro, pantz and dottore, zzz :: billy kid!! And komano manato and pyrois, lycaon, 
 
+<a href="https://ibb.co/WpgmbRDC"><img src="https://i.ibb.co/zHGqyt8d/feaf2f7a814bf52d439e86799fdf70e4.jpg" alt="feaf2f7a814bf52d439e86799fdf70e4" border="0"></a>
+
 My fav womens :, mavuika, hu tao, la signora, columbina, and sandrone, idk more
 
 Mavuika main!! 🔥 
